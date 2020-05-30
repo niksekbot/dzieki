@@ -1,0 +1,2 @@
+# dzieki
+Dzieki za zakup
